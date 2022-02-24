@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Jiya
-- 👀 I’m interested in learning new things
 - 🌱 I’m currently doing Btech
 - 📫 reach me at jiyaverma3101@gmail.com
 
